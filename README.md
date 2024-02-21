@@ -18,7 +18,7 @@
 
 - 📫 How to reach me **smschathu123@gmail.com**
 
-- ⚡ Fun fact **Call me Kalaa**
+- ⚡ Fun fact **Call me Arya or Kalaa**
 
 </td>
 <td>
